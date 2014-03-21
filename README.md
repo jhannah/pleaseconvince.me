@@ -1,6 +1,8 @@
 PleaseConvince.Me
 =================
 
+Curious minds intentionally and respectfully seeking out people who DISagree with them. In person. Over coffee or food or whatever. :)
+
 http://PleaseConvince.Me
 
 To Do List (maybe?)
